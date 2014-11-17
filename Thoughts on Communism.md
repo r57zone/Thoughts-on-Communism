@@ -80,4 +80,4 @@ https://www.youtube.com/watch?v=aGRe_bY6fbo - Взгляд на коммуниз
 
 
 <b>Связь с автором</b><br>
-r57zone@gmail.com
+r57zone[собака]gmail.com
