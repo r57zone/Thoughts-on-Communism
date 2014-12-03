@@ -76,6 +76,7 @@
 https://www.youtube.com/watch?v=ypzi90wZ0js - Плановая экономика 2.0<br>
 https://www.youtube.com/watch?v=ssSlodrPY3M -  Эффект лампочки или запланированное устаревание<br>
 http://geektimes.ru/post/242138/ - Ученые из США учат дома разговаривать с электроэнергетическими сетями<br>
+https://www.youtube.com/watch?v=sZsZ1L7Dh2I - Взгляд на образование
 https://www.youtube.com/watch?v=aGRe_bY6fbo - Взгляд на коммунизм
 
 
