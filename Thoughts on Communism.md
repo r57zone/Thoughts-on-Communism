@@ -71,6 +71,7 @@
 
 
 <b>Материалы:</b><br>
+http://www.overclockers.ru/hardnews/69211/asus-udalos-polnostju-avtomatizirovat-process-proizvodstva-videokart.html - Asus полностью автоматизировала производство видеокарт<br>
 https://www.youtube.com/watch?v=ypzi90wZ0js - Плановая экономика 2.0<br>
 https://www.youtube.com/watch?v=ssSlodrPY3M -  Эффект лампочки или запланированное устаревание<br>
 http://geektimes.ru/post/242138/ - Ученые из США учат дома разговаривать с электроэнергетическими сетями<br>
