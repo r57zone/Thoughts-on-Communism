@@ -71,12 +71,13 @@
 
 
 <b>Материалы:</b><br>
-http://www.overclockers.ru/hardnews/69211/asus-udalos-polnostju-avtomatizirovat-process-proizvodstva-videokart.html - Asus полностью автоматизировала производство видеокарт<br>
-https://www.youtube.com/watch?v=ypzi90wZ0js - Плановая экономика 2.0<br>
-https://www.youtube.com/watch?v=ssSlodrPY3M -  Эффект лампочки или запланированное устаревание<br>
-http://geektimes.ru/post/242138/ - Ученые из США учат дома разговаривать с электроэнергетическими сетями<br>
-https://www.youtube.com/watch?v=sZsZ1L7Dh2I - Взгляд на образование<br>
-https://www.youtube.com/watch?v=aGRe_bY6fbo - Взгляд на коммунизм
+Asus полностью автоматизировала производство видеокарт - http://www.overclockers.ru/hardnews/69211/asus-udalos-polnostju-avtomatizirovat-process-proizvodstva-videokart.html<br>
+Плановая экономика 2.0 - https://www.youtube.com/watch?v=ypzi90wZ0js<br>
+Эффект лампочки или запланированное устаревание - https://www.youtube.com/watch?v=ssSlodrPY3M<br>
+Ученые из США учат дома разговаривать с электроэнергетическими сетями - http://geektimes.ru/post/242138/<br>
+Взгляд на образование - https://www.youtube.com/watch?v=sZsZ1L7Dh2I<br>
+Что произойдёт, если никому не нужно будет работать ради денег - http://siliconrus.com/2015/06/base-salary/<br>
+Взгляд на коммунизм - https://www.youtube.com/watch?v=aGRe_bY6fbo - 
 
 
 <b>Связь с автором</b><br>
