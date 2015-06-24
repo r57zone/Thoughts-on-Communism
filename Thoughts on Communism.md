@@ -78,8 +78,8 @@ Asus полностью автоматизировала производств�
 Взгляд на образование - https://www.youtube.com/watch?v=sZsZ1L7Dh2I<br>
 Что произойдёт, если никому не нужно будет работать ради денег - http://siliconrus.com/2015/06/base-salary/<br>
 Взгляд на коммунизм - https://www.youtube.com/watch?v=aGRe_bY6fbo<br>
-НАСА: через сто лет Земля «перегреется» - https://www.gismeteo.ru/news/klimat/14892-nasa-cherez-sto-let-zemlya-peregreetsya
-
+НАСА: через сто лет Земля «перегреется» - https://www.gismeteo.ru/news/klimat/14892-nasa-cherez-sto-let-zemlya-peregreetsya<br>
+В ближайшие 100 лет Землю ожидает засуха - https://www.gismeteo.ru/news/klimat/15000-v-blizhayshie-100-let-zemlyu-ozhidaet-zasuha/
 
 <b>Связь с автором</b><br>
 r57zone[собака]gmail.com
