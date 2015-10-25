@@ -85,7 +85,8 @@ Asus полностью автоматизировала производств�
 Cамый лучший детский сад на свете - https://www.youtube.com/watch?v=iQyeYRqXNlo<br>
 Земля нагрелась до максимального уровня за 4000 лет - http://geektimes.ru/post/260468/<br>
 Производство электромобилей Tesla - https://www.youtube.com/watch?v=VZS0Xu8kmFw<br>
-От Гренландии откололся гигантский ледник - https://www.gismeteo.ru/news/klimat/15715-ot-grenlandii-otkololsya-gigantskiy-lednik/
+От Гренландии откололся гигантский ледник - https://www.gismeteo.ru/news/klimat/15715-ot-grenlandii-otkololsya-gigantskiy-lednik/<br>
+На складах Amazon теперь работает 30 тысяч роботов - https://geektimes.ru/post/264612/
 
 <b>Связь с автором</b><br>
 r57zone[собака]gmail.com
