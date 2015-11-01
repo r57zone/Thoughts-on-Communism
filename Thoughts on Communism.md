@@ -86,7 +86,8 @@ Cамый лучший детский сад на свете - https://www.youtu
 Земля нагрелась до максимального уровня за 4000 лет - http://geektimes.ru/post/260468/<br>
 Производство электромобилей Tesla - https://www.youtube.com/watch?v=VZS0Xu8kmFw<br>
 От Гренландии откололся гигантский ледник - https://www.gismeteo.ru/news/klimat/15715-ot-grenlandii-otkololsya-gigantskiy-lednik/<br>
-На складах Amazon теперь работает 30 тысяч роботов - https://geektimes.ru/post/264612/
+На складах Amazon теперь работает 30 тысяч роботов - https://geektimes.ru/post/264612/<br>
+Kela начинает подготовку «базового дохода» - граждане будут получать до 800 евро в месяц - http://yle.fi/uutiset/lannen_media_kela_nachinaet_podgotovku_bazovogo_dokhoda_-_grazhdane_budut_poluchat_do_800_yevro_v_mesyats/8422392
 
 <b>Связь с автором</b><br>
 r57zone[собака]gmail.com
