@@ -87,7 +87,9 @@ Cамый лучший детский сад на свете - https://www.youtu
 Производство электромобилей Tesla - https://www.youtube.com/watch?v=VZS0Xu8kmFw<br>
 От Гренландии откололся гигантский ледник - https://www.gismeteo.ru/news/klimat/15715-ot-grenlandii-otkololsya-gigantskiy-lednik/<br>
 На складах Amazon теперь работает 30 тысяч роботов - https://geektimes.ru/post/264612/<br>
-Kela начинает подготовку «базового дохода» - граждане будут получать до 800 евро в месяц - http://yle.fi/uutiset/lannen_media_kela_nachinaet_podgotovku_bazovogo_dokhoda_-_grazhdane_budut_poluchat_do_800_yevro_v_mesyats/8422392
+Правительство Финляндии начинает разработку планов по введению всеобщего безусловного дохода - https://geektimes.ru/post/265112/<br>
+Безусловный основной доход - http://megamozg.ru/company/smartprogress/blog/20490/
+
 
 <b>Связь с автором</b><br>
 r57zone[собака]gmail.com
