@@ -88,7 +88,8 @@ Cамый лучший детский сад на свете - https://www.youtu
 От Гренландии откололся гигантский ледник - https://www.gismeteo.ru/news/klimat/15715-ot-grenlandii-otkololsya-gigantskiy-lednik/<br>
 На складах Amazon теперь работает 30 тысяч роботов - https://geektimes.ru/post/264612/<br>
 Правительство Финляндии начинает разработку планов по введению всеобщего безусловного дохода - https://geektimes.ru/post/265112/<br>
-Безусловный основной доход - http://megamozg.ru/company/smartprogress/blog/20490/
+Безусловный основной доход - http://megamozg.ru/company/smartprogress/blog/20490/<br>
+26 немцам в течение года платили по тысяче евро в месяц, чтобы проверить, будут ли они при этом работать - https://tjournal.ru/p/1000-a-month
 
 
 <b>Связь с автором</b><br>
