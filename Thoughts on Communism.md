@@ -81,5 +81,6 @@ Cамый лучший детский сад на свете - https://www.youtu
 Безусловный основной доход - http://megamozg.ru/company/smartprogress/blog/20490/<br>
 26 немцам в течение года платили по тысяче евро в месяц, чтобы проверить, будут ли они при этом работать - https://tjournal.ru/p/1000-a-month<br>
 Mercedes-Benz заменяет роботов людьми на сборочном конвейере - http://www.3dnews.ru/929087/<br>
+Магазин без кассиров и охраны – это работает. Самообслуживание по-шведски - https://geektimes.ru/company/icover/blog/271962/<br>
 <b>Связь с автором</b><br>
 r57zone[собака]gmail.com
