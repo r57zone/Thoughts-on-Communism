@@ -89,5 +89,6 @@ Foxconn заменит 60000 сотрудников роботами - https://g
 Adidas в следующем году начнёт продавать в Германии кроссовки, сделанные роботами - https://geektimes.ru/post/276482/<br>
 Определён первый город США для эксперимента с выплатой безусловного основного дохода - https://geektimes.ru/post/276692/<br>
 Швейцарцы голосуют на референдуме о гарантированном доходе - http://www.bbc.com/russian/international/2016/06/160604_switzerland_income_referendum<br>
+Швейцарцы проголосовали против безусловного дохода для всех граждан - https://meduza.io/news/2016/06/05/shveytsartsy-progolosovali-protiv-bezuslovnogo-dohoda-dlya-vseh-grazhdan<br>
 <br><b>Связь с автором</b><br>
 r57zone[собака]gmail.com
